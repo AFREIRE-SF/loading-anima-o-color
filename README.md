@@ -1,1 +1,0 @@
-# loading-anima-o-color
